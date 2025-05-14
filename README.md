@@ -17,5 +17,6 @@
 
 ## المؤلف
 
-- GitHub: [AZMYEHAB21](https://github.com/AZMYEHAB21)
+AZMY EHAB  
+- GitHub: [AZMYEHAB21](https://github.com/AZMYEHAB21)  
 - Instagram: [azmy_ehab_](https://instagram.com/azmy_ehab_?igshid=MzRlODBiNWFlZA==)
